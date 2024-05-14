@@ -8,8 +8,11 @@ Alex Martinez Juan
 Diego Llorens Soriano
 Laura Albert Borrell
 
+Xavi Perez Cañada
+
 Cain Martinez Bernabeu
 
 Miguel Gandia Jorda
+
 
 
